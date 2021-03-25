@@ -36,10 +36,10 @@ However, it is not so funny if you are a short tall person like me.
 So to all those short builder out there,
 remember when you measure seven foot,
 that your tape measure is not a foot off the floor.
-I went to a fortune teller,
+I went to a fortune teller person,
 to have the bumps on my head read.
 She said, “Avoid low doors,
 as there are too many bumps there to be read.”
-So all you short builders take note of what I said.
-Raise the top of the door,
-so I can stop bumping my head.
+So all you midget builders take note of what I say.
+Raise the top of the door frame,
+so I can stop bumping my forhead.
